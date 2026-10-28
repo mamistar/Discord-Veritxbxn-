@@ -1,2 +1,0 @@
-# Discord-Veritxbxn-
-Discord
